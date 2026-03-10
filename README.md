@@ -69,10 +69,10 @@ Results-driven **Full-Stack Developer** with **2.5+ years of experience** in des
 Abdul Kalam Technical University, Lucknow | 2024  
 
 **Intermediate**  
-Holy Angels School, Shahjahanpur | 2018  
+Holy Angels School (ISC) , Shahjahanpur | 2018  
 
 **High School**  
-Holy Angels School, Shahjahanpur | 2016  
+Holy Angels School (ICSE), Shahjahanpur | 2016  
 
 ---
 
